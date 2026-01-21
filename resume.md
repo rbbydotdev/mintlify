@@ -5,7 +5,7 @@
 USA Based, willing to relocate
 
 * [Website](https://rbby.dev)
-* [robby.polana@gmail.com](mailto\:robby.polana@gmail.com)
+* [robby.polana@gmail.com](mailto:robby.polana@gmail.com)
 * [GitHub](https://github.com/rbbydotdev)
 * [Schedule a Chat](https://rbby.dev/schedule)
 
